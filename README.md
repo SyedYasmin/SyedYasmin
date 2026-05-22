@@ -9,4 +9,4 @@ I'm Yasmin, a student passionate about technology, coding, and learning new skil
 - Building small projects to improve my skills
 
 ## 📫 How to Reach Me
-- Email: yourmail@example.com
+- Email: yasminsyed211@gmail.com
